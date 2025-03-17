@@ -17,7 +17,8 @@ I’m a student from **SLIIT Northern Uni**, currently diving deep into **web de
 ---
 
 ### 📫 Get in Touch
-- [LinkedIn](https://www.linkedin.com/in/royce-abiel-a449102a7)  
+- [LinkedIn](https://www.linkedin.com/in/royce-abiel-a449102a7)
+- [X - formerly Twitter](https://x.com/royce_abiel)
 - 📧 royceabiel26.personal@gmail.com  
 
 ---
